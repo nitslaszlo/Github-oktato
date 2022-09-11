@@ -14,3 +14,4 @@ Vizsgaremek címe: A vágtázó halottkémek alkonya
 wreererwe
 készen vagyok
 még dolgozom a 20-ason
+még mindig dolgozom
